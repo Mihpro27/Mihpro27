@@ -5,6 +5,7 @@
 - 🌱 PEI Oscar Kurtz Camargo
 - 📫 Ribeirão Grande- SP
 - ⚡ Escute o som da grama crescer rsrs
+  para entrar em contato comigo: michelesantos@alunos.utfpr.edu.br
 
 <!---
 Mihpro27/Mihpro27 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
